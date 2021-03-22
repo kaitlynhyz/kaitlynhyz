@@ -2,4 +2,4 @@
 
 I'm a ~~web designer~~ front-end developer with UI/UX design skills (front-end designer).
 
-I'm a senior graduating in May 2021 with my bachelor's degree in Business Administration — concentration in Information Systsems and Business Analytics.✨😍
+I'm a senior graduating in May 2021 with my bachelor's degree in Business Administration — concentration in Information Systsems and Business Analytics.✨🤩
